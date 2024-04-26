@@ -1,0 +1,1 @@
+Hello! I am Ryan, a current student at my local community college learning how to code in various languages! At this moment I want to achieve fluency within the world of coding and continue to strive for greater feats in this creative environment. 
